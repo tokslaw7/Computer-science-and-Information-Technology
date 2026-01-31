@@ -1,3 +1,4 @@
 # Computer-science-and-Information-Technology
 
-![View the project Certificate (PDF)](Users/taborg/Downloads/YABATECH CERTIFICATE.pdf)
+[View the Computer Science Degree ](Users/taborg/Downloads/YABATECH CERTIFICATE.pdf)
+
